@@ -4,7 +4,7 @@
   
 ![Jesus e eu](https://pm1.aminoapps.com/7298/bc3798b7c13ba388d0d9b4e267d4bdec47f8aea5r1-1080-1350v2_00.jpg)
 - Sou mãe da Maysa, de 13 anos, e do Caleb, de 11 anos. Também amo demais aos meus filhos.
-- Estudo *Matemática* na faculdade e estou por aqui stalkeando uma nova carreira na área Tech. Queira Deus que eu consiga!
+- Estudo *Matemática* na faculdade Unifael e estou por aqui stalkeando uma nova carreira na área Tech. Queira Deus que eu consiga!
 
 - É fácil me encontrar nas redes sociais. Me segue lá!
 
