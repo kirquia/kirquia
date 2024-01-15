@@ -1,6 +1,6 @@
 **Olá, mundo! Eu sou Kirquia!**
 
-- Sou cristã e amo Jesus Cristo.
+- Sou cristã e amo a Jesus Cristo.
   
 ![Jesus e eu](https://pm1.aminoapps.com/7298/bc3798b7c13ba388d0d9b4e267d4bdec47f8aea5r1-1080-1350v2_00.jpg)
 - Sou mãe da Maysa, de 13 anos, e do Caleb, de 11 anos. Também amo demais aos meus filhos.
